@@ -1,1 +1,0 @@
-pentru materia de pc
